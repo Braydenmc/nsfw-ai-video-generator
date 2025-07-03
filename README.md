@@ -8,7 +8,7 @@ AI video generators are becoming super popular, especially for creating NSFW con
 
 **Soulgen AI** is a powerful NSFW AI video generator that lets you create adult content from text or images. It supports anime-style, realistic, and even fantasy videos. You can make personalized characters and scenes without needing pro editing skills.
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/p7UiU)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 ### **Main Features**
 
@@ -40,7 +40,7 @@ I found Soulgen fun to use, especially for anime-style videos. It’s pretty sim
 
 ### 1️⃣ Unstable Diffusion
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/p7UiU)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 **Main Features**
 
@@ -70,7 +70,7 @@ It’s amazing for creative fantasy scenes, but takes time to learn.
 
 ### 2️⃣ Pornpen AI
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/p7UiU)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 **Main Features**
 
@@ -100,7 +100,7 @@ I liked how fast and simple it was. Perfect for quick, fun experiments.
 
 ### 3️⃣ DeepSwaper AI
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/UGeXc)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 **Main Features**
 
@@ -130,7 +130,7 @@ Fun and fast. Great if you just want to swap faces and create funny or sexy clip
 
 ### 4️⃣ PornLab AI
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/p7UiU)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 
 **Main Features**
@@ -161,7 +161,7 @@ Perfect for building custom roleplay scenes, but it requires patience.
 
 ### 5️⃣ FaceFusion NSFW
 
-**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/p7UiU)**
+**[💜 Try It Free — Explore Your Fantasy](https://shorturl.at/Fc5oG)**
 
 **Main Features**
 
